@@ -23,4 +23,4 @@ $\text{\color{#B727F5}  ⤷ ゛Setting ablaze an extravagant scene! ˎˊ˗⠀⸝
  $\text{\color{#D0EBF2} 𓈒 𐔌 bmf , im very nice i swear ..maybe ͡꒱ ۫
   }$ 
   
-<img width="604" height="413" alt="taxduoyaypixelart" src="https://github.com/user-attachments/assets/57a16be5-9932-4d49-a542-2213692bce6b" />
+<img width="200" height="200" alt="taxduoyaypixelart" src="https://github.com/user-attachments/assets/57a16be5-9932-4d49-a542-2213692bce6b" />
