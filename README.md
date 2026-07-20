@@ -6,7 +6,8 @@
 
 
 <div align="center">
-<img width="717" alt= <img width="736" height="414" alt="taxduonobg" src="https://github.com/user-attachments/assets/2da5ee12-c85d-4956-8568-51d3dfd1ad00" />
+<img width="717" alt= <img width="736" height="414" alt="Screenshot 2026-07-20 005821" src="https://github.com/user-attachments/assets/e36b37fa-8071-4c28-b836-fedc2faafaaf" />
+
 />
 
 <div align="center">
