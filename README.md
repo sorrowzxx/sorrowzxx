@@ -14,13 +14,13 @@
   $\text{\color{#E39E22}   ｡𖦹°‧ ⠀ "Well, that was fun... Goodbye!"　⋆˙⟡
   }$ 
 
-  $\text{\color{#B727F5} 𓏴𓏴⠀I did not make the art above.. 𓏵
+  $\text{\color{#B727F5} 𓏴𓏴⠀I did not make any of the art .. 𓏵
   }$ 
 
 $\text{\color{#B727F5}  ⤷ ゛Setting ablaze an extravagant scene! ˎˊ˗⠀⸝⸝⠀⠀ do not copy or take inspo thx !.. ๋ ࣭ ⭑⠀
   }$ 
   
- $\text{\color{#D0EBF2} 𓈒 𐔌 bmf , im very nice i swear ..maybe ͡꒱ ۫
+ $\text{\color{#C7E1ED} 𓈒 𐔌 bmf , im very nice i swear ..maybe ͡꒱ ۫
   }$ 
   
-<img width="200" height="100" alt="taxduoyaypixelart" src="https://github.com/user-attachments/assets/57a16be5-9932-4d49-a542-2213692bce6b" />
+<img width="100" height="100" alt="taxduoyaypixelart" src="https://github.com/user-attachments/assets/57a16be5-9932-4d49-a542-2213692bce6b" />
