@@ -19,3 +19,5 @@
 
 $\text{\color{#B727F5}  ⤷ ゛Setting ablaze an extravagant scene! ˎˊ˗⠀⸝⸝⠀⠀ do not copy or take inspo thx !.. ๋ ࣭ ⭑⠀
   }$ 
+  
+ $\text{\color{#B727F5} 𓈒 𐔌 bmf , im very nice i swear ..maybe ͡꒱ ۫
