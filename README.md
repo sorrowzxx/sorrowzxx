@@ -11,7 +11,7 @@
 <div align="center">
 
   
-  $\text{\color{#B727F5}   ｡𖦹°‧ ⠀ "Well, that was fun... Goodbye!"　⋆˙⟡
+  $\text{\color{#E39E22}   ｡𖦹°‧ ⠀ "Well, that was fun... Goodbye!"　⋆˙⟡
   }$ 
 
   $\text{\color{#B727F5} 𓏴𓏴⠀I did not make the art above.. 𓏵
