@@ -1,7 +1,7 @@
 <div align="center">
 
   
-  $\text{\color{#ff0000} ┆ ⌗  "The Devil made me do it-.. but I also kinda wanted to!!"　
+  $\text{\color{#B727F5} ┆ ⌗  "Your greatest mistake was keeping me alive."　
   }$
 
 
