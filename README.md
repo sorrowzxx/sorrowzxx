@@ -6,8 +6,8 @@
 
 
 <div align="center">
-<img width="717" alt= <img width="736" height="414" alt="TDL MY BELOVED AAHHH" src="https://github.com/user-attachments/assets/d5b95716-f20b-477a-92ac-6e0facb5b661" />
-" />
+<img width="717" alt= <img width="736" height="414" alt="taxduonobg" src="https://github.com/user-attachments/assets/2da5ee12-c85d-4956-8568-51d3dfd1ad00" />
+/>
 
 <div align="center">
 
