@@ -18,15 +18,3 @@ $\text{\color{#ff0000} ⠀⸝⸝⠀⠀ do not copy or take inspo  ๋ ࣭ ⭑⠀
 
 $\text{\color{#ff0000}    ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀꒡ ͝
 }$
- 
- $\text{\color{#ff0000} ˖   ﹫ wemmbu  ࿈  felix ⠀⸝⸝` 
-}$
-
-$\text{\color{#ff0000} ⠀  ٠   he  ︵  him   ٠
-}$
-
- $\text{\color{#ff0000}       ༝   E S T P   ༝
-}$
-
- $\text{\color{#ff0000}  †། ͝   ݁   ︶♱︶    ݁   ͝ །†
-}$
