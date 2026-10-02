@@ -18,3 +18,7 @@ $\text{\color{#ff0000} ⠀⸝⸝⠀⠀ do not copy or take inspo  ๋ ࣭ ⭑⠀
 
 $\text{\color{#ff0000}    ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀꒡ ͝
 }$
+
+   Coquette Habit
+01:09 ━━━━━━●── 02:17
+ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤ
