@@ -11,7 +11,7 @@
 
   
 
-  $\text{\color{#802e89} 𓏴𓏴⠀I did not make the art above.. 𓏵
+  $\text{\color{#802e89} 𓏴𓏴⠀E S T P 𓏵
   }$ 
 
 $\text{\color{#802e89} ⠀⸝⸝⠀⠀ do not copy or take inspo  ๋ ࣭ ⭑⠀
