@@ -1,6 +1,6 @@
 <div align="center">
 
-  $\text{\color{#ff0000}   ｡𖦹°‧ ⠀ "Well, that was fun... Goodbye!"　⋆˙⟡
+  $\text{\color{#802e89}   ｡𖦹°‧ ⠀ "do i creep u out?"　⋆˙⟡
   }$ 
   
 <div align="center">
