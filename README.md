@@ -11,15 +11,21 @@
 
   
 
-  $\text{\color{#ff0000} 𓏴𓏴⠀I did not make the art above.. 𓏵
+  $\text{\color{#802e89} 𓏴𓏴⠀I did not make the art above.. 𓏵
   }$ 
 
-$\text{\color{#ff0000} ⠀⸝⸝⠀⠀ do not copy or take inspo  ๋ ࣭ ⭑⠀
+$\text{\color{#802e89} ⠀⸝⸝⠀⠀ do not copy or take inspo  ๋ ࣭ ⭑⠀
   }$ 
 
-$\text{\color{#ff0000}    ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀꒡ ͝
+$\text{\color{#802e89}    ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀꒡ ͝
 }$
 
-   Coquette Habit
-01:09 ━━━━━━●── 02:17
-ㅤ ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤ
+$\text{\color{#802e89}   Coquette Habit
+}$
+
+$\text{\color{#802e89} 01:09 ━━━━━━●── 02:17
+ㅤ}$
+
+$\text{\color{#802e89}
+ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤ
+}$
