@@ -16,7 +16,7 @@
 $\text{\color{#ff0000} ⠀⸝⸝⠀⠀ do not copy or take inspo  ๋ ࣭ ⭑⠀
   }$ 
 
-$\text{\color{#ff0000}  ⠀⠀   ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀꒡ ͝
+$\text{\color{#ff0000}    ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀꒡ ͝
 }$
  
  $\text{\color{#ff0000} ˖   ﹫ name  ࿈  name ⠀⸝⸝` 
