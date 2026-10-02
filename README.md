@@ -16,5 +16,9 @@
 $\text{\color{#ff0000} ⠀⸝⸝⠀⠀ do not copy or take inspo  ๋ ࣭ ⭑⠀
   }$ 
 
-$\text{\color{#ff0000}  ˑ 𓈒  ۫
+$\text{\color{#ff0000}  ⠀⠀   ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀꒡ ͝
+ㅤ    ˖   ﹫ name  ࿈  name ⠀⸝⸝` 
+⠀⠀⠀⠀  ٠   prns  ︵  prns   ٠
+                  ༝   M B T I   ༝
+              †། ͝   ݁   ︶♱︶    ݁   ͝ །†
 }$
