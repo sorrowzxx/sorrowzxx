@@ -23,9 +23,6 @@ $\text{\color{#802e89}    ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀꒡ ͝
 $\text{\color{#802e89}   Coquette Habit
 }$
 
-$\text{\color{#802e89} 01:09 --------●--- 02:17
-ㅤ}$
-
 $\text{\color{#802e89}
 ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤ
 }$
