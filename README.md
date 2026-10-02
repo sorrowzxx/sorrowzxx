@@ -21,6 +21,7 @@ $\text{\color{#ff0000}  ⠀⠀   ͝ ꒡⠀† ݁ ⠀ ⏝∔⏝ ⠀ ݁ †⠀
 }$
 
 ⠀⠀⠀$\text{\color{#ff0000} ⠀  ٠   prns  ︵  prns   ٠
+
 }$
 
    $\text{\color{#ff0000}                ༝   M B T I   ༝
