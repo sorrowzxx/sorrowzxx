@@ -21,6 +21,7 @@ $\text{\color{#802e89}
 
 
 
+  <table>
     <td width="50%" valign="middle">
       <details>
         <p>${\textbf{\color{#802e89}🟢 Online - int.}}$</p>
