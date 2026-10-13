@@ -29,6 +29,16 @@ $\text{\color{#802e89}
 
 <img width="68" height="29" alt="Screenshot 2026-10-13 005033" src="https://github.com/user-attachments/assets/f7fb8d5a-4bf5-4812-85a2-ed05b964c8d9" />
 
+<table border="0">
+    <td width="50%" valign="middle">
+      <details>
+        <p>${\textbf{\color{#802e89}🟢 Online - int.}}$</p>
+        <p>${\textbf{\color{#802e89}🗨 chat - please interact.}}$</p>
+        <p>${\textbf{\color{#802e89}🎭  rp - i dont rp.}}$</p>
+        <p>${\textbf{\color{#802e89}🌙 Away - asleep irl.}}$</p>
+        <p>${\textbf{\color{#802e89}⛔ Busy - offtab, w2i, int freely tho.}}$</p>
+        <summary>
+
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jpipl2g3y2bfgmkxso6zf3bjay&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=6b1976&bar_color_cover=false">
   </a>
