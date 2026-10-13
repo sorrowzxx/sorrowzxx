@@ -3,11 +3,10 @@
 <div align="center">
 
   $\text{\color{#802e89}   ｡𖦹°‧ ⠀ "do i creep u out?"　⋆˙⟡  />
-  }$  
-  
-  <p align="right">
+  }$    <p align="right">
 <img width="168" height="124" alt="taxduocuddle" src="https://github.com/user-attachments/assets/43ac493a-d5a3-4191-8c07-6ae0c7298653" />
 
+  
 
   
 
