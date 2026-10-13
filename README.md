@@ -24,8 +24,7 @@ $\text{\color{#802e89}
 }$
 
 
-<p align="left">
-<img width="168" height="124" alt="taxduo2" src="https://github.com/user-attachments/assets/32be9da9-5c2f-49ec-a91e-0d4b9545cc01" />
+
 
 <p align="right">
   <a href="https://github.com/kittinan/spotify-github-profile">
