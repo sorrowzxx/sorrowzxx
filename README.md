@@ -33,7 +33,7 @@ $\text{\color{#802e89}
     <td width="50%" valign="middle">
       <details>
         <p>${\textbf{\color{#802e89}🟢 Online - int.}}$</p>
-        <p>${\textbf{\color{#802e89}🗨 chat - please interact.}}$</p>
+        <p>${\textbf{\color{#802e89}💬 chat - please interact.}}$</p>
         <p>${\textbf{\color{#802e89}🎭  rp - i dont rp.}}$</p>
         <p>${\textbf{\color{#802e89}🌙 Away - asleep irl.}}$</p>
         <p>${\textbf{\color{#802e89}⛔ Busy - offtab, w2i, int freely tho.}}$</p>
