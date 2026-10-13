@@ -23,8 +23,8 @@ $\text{\color{#802e89}
 ㅤ◁ㅤ ❚❚ ㅤ▷ ㅤ
 }$
 
-
-
+<p align="left">
+<img width="168" height="124" alt="taxduolay" src="https://github.com/user-attachments/assets/d2124264-f708-40c3-9ec1-fce23da9ffa7" />
 
 <p align="right">
   <a href="https://github.com/kittinan/spotify-github-profile">
