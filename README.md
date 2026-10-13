@@ -24,6 +24,9 @@ $\text{\color{#802e89}
 }$
 
 <img width="168" height="124" alt="taxduolay" src="https://github.com/user-attachments/assets/3c8b1594-2f2c-44ea-980c-e79e217410f5" />
+
+<img width="68" height="29" alt="Screenshot 2026-10-13 005033" src="https://github.com/user-attachments/assets/f7fb8d5a-4bf5-4812-85a2-ed05b964c8d9" />
+
 <img width="68" height="29" alt="Screenshot 2026-10-13 005033" src="https://github.com/user-attachments/assets/f7fb8d5a-4bf5-4812-85a2-ed05b964c8d9" />
 
   <a href="https://github.com/kittinan/spotify-github-profile">
