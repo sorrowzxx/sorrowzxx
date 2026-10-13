@@ -34,9 +34,9 @@ $\text{\color{#802e89}
       <details>
         <p>${\textbf{\color{#802e89}🟢 Online - int.}}$</p>
         <p>${\textbf{\color{#802e89}💬 chat - please interact.}}$</p>
-        <p>${\textbf{\color{#802e89}🎭  rp - i dont rp.}}$</p>
+        <p>${\textbf{\color{#802e89}🎭  rp - i dont rp, so i never use this.}}$</p>
         <p>${\textbf{\color{#802e89}🌙 Away - asleep irl.}}$</p>
-        <p>${\textbf{\color{#802e89}⛔ Busy - offtab, w2i, int freely tho.}}$</p>
+        <p>${\textbf{\color{#802e89}⛔ Busy - offtab, w2i, or just for aesthetic, mostly on busy even if im not. int freely.}}$</p>
         <summary>
 
   <a href="https://github.com/kittinan/spotify-github-profile">
